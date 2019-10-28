@@ -20,11 +20,11 @@ i am new to github <hr>
 Hello Sir,
 Yes we are here for free t-shirt
 
-### By Luv
+### By Sreeja
 <h1>Good evening sir</h1>
 
 
-<h1>hello sir , Satyam here</h1><hr>
+<h1>hello sir , Sreeja here</h1><hr>
 
 Freeeeeeeeeeeeee Tshirts Hahahahahahhahahahahahahahahhaha<hr>
 Thank you, sir.
